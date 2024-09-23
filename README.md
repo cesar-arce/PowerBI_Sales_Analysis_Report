@@ -34,7 +34,13 @@ Insight: Approximately 60% of total sales are attributed to three primary catego
 
 ![Screenshot 2024-09-23 104653](https://github.com/user-attachments/assets/3513ffb7-a299-4081-9c84-76160af0b5b8)
 
+![Screenshot 2024-09-23 111309](https://github.com/user-attachments/assets/51e2c12a-fb6b-43b8-ad1f-4c3b04ab1f97)
+
+![Screenshot 2024-09-23 111332](https://github.com/user-attachments/assets/1be57830-6e2a-40ab-9479-0ab6ecf31304)
+
 ![Screenshot 2024-09-23 104327](https://github.com/user-attachments/assets/69272b06-aa03-45f7-ada7-518d894577d3)
 
 ![Screenshot 2024-09-23 104311](https://github.com/user-attachments/assets/138184f2-17a2-4497-a57d-18778c352507)
+
+![Screenshot 2024-09-23 111309](https://github.com/user-attachments/assets/58acd966-793d-4b2c-9575-871bd04e50be)
 
